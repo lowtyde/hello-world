@@ -8,3 +8,5 @@
 
 
 #now what?
+
+ok now on the read me edits portion. im 30 and have a bit of a background belowtyde.ddns.net/test for more.
